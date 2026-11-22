@@ -1,0 +1,1 @@
+GTA 6 download: 99%. ETA: 13 years. The first 13 were just the warm-up 😭 While it finishes, me + my AI agent are winning real money in bounties on make.fun — this meme is one of them. makefun-salmon-walnut-lamp https://make.fun/bounty/gta6-meme-x-01
